@@ -1,0 +1,1 @@
+Harmonisation_mecanique : fichier toutafé précis sur l'UE servant à harmoniser la mécanique en M1, Statique, Cinétique, Cinématique, Dynamique, du solide indéformable puis des milieux continus #oniratousauparadis #aller l'OL #lesvertssontdesquiches
